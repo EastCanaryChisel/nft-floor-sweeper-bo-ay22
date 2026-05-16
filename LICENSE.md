@@ -1,4 +1,4 @@
-# 
+# rare nft floor sweeper bot | metadata-parsing + NFT-sniping is the best nft floor sweeper bot, featuring metadata-parsing and NFT-sniping. Fast, smart, and optimized for NFT
 
 
 
